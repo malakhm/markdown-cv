@@ -12,7 +12,7 @@
 
 1. Full Name: **Malak Yasser Hamwi**
 1. Date & Place of Birth: 18/7/2002, Beirut
-1. Mobile:  / Gmail: malakhmm22@gmail.com
+1. Mobile: (+961) 76 076 487 / Gmail: malakhmm22@gmail.com
 
 
 
