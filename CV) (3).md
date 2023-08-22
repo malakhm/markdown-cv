@@ -31,6 +31,7 @@ Sept 2019	**Sin El Fil High School**, sin el fil.
 – May 2023
 
 - General-Science branch
+-seconde
 
 
 
